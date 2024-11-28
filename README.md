@@ -1,0 +1,1 @@
+Semangat Ngoding yahh
